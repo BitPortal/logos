@@ -1,3 +1,3 @@
 ## Logos
 
-BitPortal realted logos
+BitPortal related logos
